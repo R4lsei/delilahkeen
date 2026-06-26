@@ -7,7 +7,7 @@
 
 <p align="center">
  
- ⠀⠀<p align="center"> [strawpage](https://toonuniverse.straw.page/)    ⠀ [fictkin list](https://pronouns.cc/discard) ⠀ [f/o rentry](https://rentry.co/cooljane) ⠀[ata](https://artfull.atabook.org)
+ ⠀⠀<p align="center"> [strawpage](https://toonuniverse.straw.page/)    ⠀ [fictkin list](https://pronouns.cc/discard) ⠀ [dni list](https://pronouns.cc/romeo) ⠀[ata](https://artfull.atabook.org)
 
 
 
